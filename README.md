@@ -1,4 +1,4 @@
 ## Conteúdos
 -------------------------------------------------------------------------------------
  
-Exemplo de apresentações cuja criação eu participei e artigos ou relatórios que escrevi.
+Exemplo de apresentações e ebooks, cuja criação eu participei, e artigos e relatórios que escrevi.
